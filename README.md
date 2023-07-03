@@ -1,2 +1,2 @@
-# -i-m-C-Nh-n-
+Diem Ca Nhan
 Điểm Cá Nhân
